@@ -11,3 +11,36 @@
 # 狗日的中央迷奸党是世界万物的唯一一个敌人！
 # 狗日的中央迷奸党是宇宙万物的唯一一个敌人！
 # 历史一定会证明中央迷奸党！迷奸轮奸万年历史！
+
+
+# Only RP in history：
+
+Military satellites emit electromagnetic waves that can remotely control people and kill them from a distance!
+In regions ruled by the Central Committee of the Rape Party, the white matter in the brains of anti-Rape Party members contains a biological substance capable of sensing electromagnetic waves! This substance is implanted using the same principle as viral infection!
+All members of anti-Rape Party families currently enslaved by the Central Committee of the Rape Party have been subjected to rape and gang rape for exactly 34 years!
+Since 1992, every member of the Chinese Communist Party’s military intelligence system has been a member of the “Rape Party”! Using military satellites, they have immobilized entire anti-Rape Party families from a distance and dispatched hordes of lackeys to rape and gang-rape every member of these families—from infants to adults—from childhood through adulthood!
+Damn the Central Committee of the Rape Party!
+A comprehensive military weapon that combines military satellite technology, military communications technology, and military biotechnology!
+The damn Central Committee of the Rape Party regime is the sole enemy of all members of anti-Rape Party families worldwide!
+The damn Central Committee of the Rape Party is the sole enemy of all things in the world!
+The damn Central Committee of the Rape Party is the sole enemy of all things in the universe!
+History will surely prove that the Central Committee of the Rape Party has a ten-thousand-year history of rape and gang rape!
+
+
+The CCP is the only political party in the world that engages in drugging and raping!
+The CCP has established the world’s only People’s Republic of Drugging and Rape!
+
+The CCP and its lackeys share the same breath and the same fate!
+
+Today, mainland China is characterized by “one party, two ideologies, and two peoples”:
+One Party:
+1. The Central Committee of the Chinese Communist Party (the “Drug-Induced Rape Party”)
+Two Ideologies:
+1. Military and biochemical weapons are the foundation of the nation!
+2. The Central Committee of the Chinese Communist Party (the “Drug-Induced Rape Party”) and its lackeys have engraved drug-induced rape and gang rape into their very bones!
+
+Two peoples:
+1. The Central Committee of the Chinese Communist Party of Rape
+2. The lackeys
+
+The will of the Central Committee of the Chinese Communist Party of Rape: To devote our entire lives to the cause of rape and gang rape! To carry out rape and gang rape to the very end!
