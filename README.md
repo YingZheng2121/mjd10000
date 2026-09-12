@@ -60,3 +60,21 @@ Two peoples:
 
 
 The will of the Central Committee of the Chinese Communist Party of Rape: To devote our entire lives to the cause of rape and gang rape! To carry out rape and gang rape to the very end!
+
+My sisters and I have been drugged and gang-raped for a full 34 years! Right now, every member of our family continues to be drugged and gang-raped in China! Urgent plea for help! The Chinese Communist Party has been using military biochemical weapons to dominate the world!
+
+In the event of an earthquake or a plane crash, they’ll drug-rape and gang-rape every member of the anti-drug-rape Party’s family until they’re all dead! The damn Chinese Communist Party is, at its core, a drug-rape party! The damn Central Committee of the Chinese Communist Party is a drug-rape party!
+
+Earthquakes or plane crashes are bound to happen on the 21st, 22nd, 24th, and 25th of every month!
+
+
+
+
+
+
+
+
+
+
+
+
