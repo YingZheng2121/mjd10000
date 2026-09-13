@@ -69,12 +69,36 @@ Earthquakes or plane crashes are bound to happen on the 21st, 22nd, 24th, and 25
 
 
 
+On the 12th, 21st, 22nd, 24th, and 25th of every month, earthquakes or plane crashes are bound to happen! It must be the work of the Central Committee of the Chinese Communist Party’s Rape Party! Because on these dates every time, tens of millions of them gang-rape an infant from infancy through adulthood!
+
+That is the Central Committee of the Chinese Communist Party and its lackeys cursing every member of every family in the world that opposes the Party to death! They are also cursing all free people in the world to death!
+
+History will surely prove that these dates are the “Rape Party Days” of the Central Committee of the Chinese Communist Party’s Rape Party!
+
+
+
+That damn Central Committee of the Communist Party of China will surely go down in history books hundreds of years from now as the only “rape-and-deception” regime! It is also the only “rape-and-deception” regime in the world today! It is the only “rape-and-deception” regime under the heavens! It is the only “rape-and-deception” regime in the entire universe!
+
+The damned Central Committee of the Chinese Communist Party is using the fact that it is the only remaining “rape party” regime to elicit sympathy! As if it were something remarkable! A “rape party” regime whose sole purpose is to rape and gang-rape all anti-“rape party” members to death—its very foundation is built on a century of rape and gang-rape!
+
+
+They will effortlessly achieve their goal of drugging and gang-raping every single member of an anti-Drug-Rape Party—including everyone in their families—to death for a full hundred years! The goddamn Central Committee of the Chinese Communist Party will certainly remain a Drug-Rape Party for a hundred years! Born for drugging and gang-rape, and destined to perish for drugging and gang-rape!
 
 
 
 
 
+That damn Central Committee of the Communist Party of China will surely go down in history books hundreds of years from now as the only “rape-and-deception” regime! It is also the only “rape-and-deception” regime in the world today! It is the only “rape-and-deception” regime under the heavens! It is the only “rape-and-deception” regime in the entire universe!
+
+The damned Central Committee of the Chinese Communist Party is using the fact that it is the only remaining “rape party” regime to elicit sympathy! As if it were something remarkable! A “rape party” regime whose sole purpose is to rape and gang-rape all anti-“rape party” members to death—its very foundation is built on a century of rape and gang-rape!
 
 
+They will effortlessly achieve their goal of drugging and gang-raping every single member of an anti-Drug-Rape Party—including everyone in their families—to death for a full hundred years! The goddamn Central Committee of the Chinese Communist Party will certainly remain a Drug-Rape Party for a hundred years! Born for drugging and gang-rape, and destined to perish for drugging and gang-rape!
+
+
+One day, the “great cause” of the drugging and gang-rape regime—led by Deng, Jiang, Hu, Xi, and others—will surely be completely crushed outside mainland China! The damned Central Committee of the Chinese Communist Party has always equated scientific and technological progress with progress in drugging and gang-rape! It has consistently used military biochemical weapons to carry out drugging and gang rape, pursuing its “Centennial Goal” of drugging and gang rape! They and their lackeys will surely carry out their “great cause” of drugging and gang rape until death! They are the very bloodline of the drugging and gang rape clan! The damned Central Committee of the Chinese Communist Party—a party dedicated to drugging and gang rape! The only such party in history! And there will forever be only this one party dedicated to drugging and gang rape!
+
+
+The “Century-Old Rape Party” is none other than the Central Committee of the Communist Party of China! The Central Committee of the Communist Party of China is none other than the “Century-Old Rape Party.”
 
 
