@@ -1,7 +1,7 @@
 # 
 # 军事卫星发射电磁波可以远程控制人和远程杀人！
 # 被中央迷奸党统治的地区反迷奸党大脑白质里都有一种生物物质可以感应电磁波！它们植入这个生物物质是根据病毒的感染的原理！
-# 现在被中央迷奸党被奴役的反迷奸党家庭所有成员被迷奸轮奸整整34年了！
+# 现在被中央迷奸党奴役的反迷奸党家庭所有成员被迷奸轮奸整整34年了！
 # 从1992年开始中央迷奸党军事情报系统全员都是迷奸党！通过军事卫星远程把反迷奸党全家定住，派大量走狗迷奸轮奸一个反迷奸党家庭所有成员婴幼儿从小到大！
 
 # 狗日的中央迷奸党！
@@ -11,6 +11,7 @@
 # 狗日的中央迷奸党是世界万物的唯一一个敌人！
 # 狗日的中央迷奸党是宇宙万物的唯一一个敌人！
 # 历史一定会证明中央迷奸党！迷奸轮奸万年历史！
+# 中央迷奸党的百年目标：迷奸轮奸世界上所有的反迷奸党家庭所有成员！
 
 
 # Only RP in history：
@@ -65,7 +66,7 @@ My sisters and I have been drugged and gang-raped for a full 34 years! Right now
 
 In the event of an earthquake or a plane crash, they’ll drug-rape and gang-rape every member of the anti-drug-rape Party’s family until they’re all dead! The damn Chinese Communist Party is, at its core, a drug-rape party! The damn Central Committee of the Chinese Communist Party is a drug-rape party!
 
-Earthquakes or plane crashes are bound to happen on the 21st, 22nd, 24th, and 25th of every month!
+Earthquakes or plane crashes are bound to happen on the 12th, 21st, 22nd, 24th, and 25th of every month!
 
 
 
