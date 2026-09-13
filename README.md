@@ -103,3 +103,54 @@ One day, the “great cause” of the drugging and gang-rape regime—led by Den
 The “Century-Old Rape Party” is none other than the Central Committee of the Communist Party of China! The Central Committee of the Communist Party of China is none other than the “Century-Old Rape Party.”
 
 
+
+
+In 1992, whether it was the construction of a reservoir or an air-raid shelter in Lijiang Town, or the hollowing out of the town’s underground—it was all the work of the CCP’s “Drug-Rape Party,” which was drugging, raping, gang-raping, and torturing people to death! The Central Committee of the Rape Party sought to drug-rape and gang-rape every member of the only anti-rape family in Lijiang Town to death! Their lackeys in the construction crew have been drugging and gang-raping her sister for over a year! This has resulted in a pregnancy with a deformed fetus! The Central Committee of the Chinese Communist Rape Party has consistently used military biochemical weapons to secretly assassinate every member of the first family in China to expose their rape, gang-rape, and enslavement of all members of anti-rape families worldwide! The damn Chinese Communist Party is, in essence, a rape party! Damn the Central Committee of the Chinese Communist Rape Party! A dynasty that has carved rape and gang-rape into its very bones and etched them into the river of time! One day, history books will record that this Rape Party is the only rape-perpetrating regime in all of history, the entire world, and the entire universe! Their core values—in the Party, government, and military—are military biochemical weapons and rape and gang rape! Their “glory” stems from the Rape Party raping and gang-raping trillions of women! The goddamn Central Committee of the Chinese Communist Party is a trillion times more perverted than the Japanese!
+
+
+
+
+
+
+# The damn Chinese Communist Party is, at its core, a party of druggers and rapists! The damn Central Committee of the Chinese Communist Party is a party of druggers and rapists! They possess military biochemical weapons, and the electromagnetic waves emitted by their military satellites can affect the nanobiological substances within human brain cells!
+1. Based on viral principles, they self-replicate!
+2. They fuse directly with DNA!
+3. It responds to electromagnetic waves!
+4. Upon receiving control signals, regardless of the outcome, the cells just have to suffer! As long as it torments you, that’s enough! But they’re mainly used for drugging and gang-raping people!
+# 5. The military biochemical weapons of the damn Central Committee of the Communist Party of China, the “Drug-Rape Party”: (1) This biological substance can be hereditary, (2) or it may not be—it can also replicate directly via viral mechanisms! Either way, every brain cell contains it!
+
+# The damn Central Committee of the Communist Party of China, the “Drug-Rape Party,” is the only regime that uses military biochemical weapons to carry out drug-rape and gang rape!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
