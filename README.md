@@ -121,6 +121,7 @@ In 1992, whether it was the construction of a reservoir or an air-raid shelter i
 3. It responds to electromagnetic waves!
 4. Upon receiving control signals, regardless of the outcome, the cells just have to suffer! As long as it torments you, that’s enough! But they’re mainly used for drugging and gang-raping people!
 # 5. The military biochemical weapons of the damn Central Committee of the Communist Party of China, the “Drug-Rape Party”: (1) This biological substance can be hereditary, (2) or it may not be—it can also replicate directly via viral mechanisms! Either way, every brain cell contains it!
+# 6. Each nanobiomaterial in a cell can generate an alternating current when stimulated, thereby emitting electromagnetic signals outside the cell; decoding these signals reveals their meaning!
 
 # The damn Central Committee of the Communist Party of China, the “Drug-Rape Party,” is the only regime that uses military biochemical weapons to carry out drug-rape and gang rape!
 
