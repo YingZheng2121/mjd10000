@@ -129,6 +129,110 @@ In 1992, whether it was the construction of a reservoir or an air-raid shelter i
 
 
 
+# In short, the damn Central Committee of the Chinese Communist Party uses drugged rape, military and biochemical weapons to build the Party, build the military, and train its lackeys to carry out drugged rapes and gang rapes!
+
+
+# In short, the damn Central Committee of the Chinese Communist Party uses drugged rape, military and biochemical weapons to build the Party, build the military, and train its lackeys to carry out drugged rape and gang rape!
+
+
+# Centennial Goal: To subject all members of families in the global anti-drugged-rape movement to drugged rape and gang rape for a hundred years!
+
+# A ten-thousand-year history of drugged rape!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
